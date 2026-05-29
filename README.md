@@ -79,7 +79,7 @@ B.Tech – Computer Science & Cyber Security
 GitHub:
 https://github.com/HARSHAVARDHANTAMTAM
 
-LinkedIn:\
+LinkedIn:https://www.linkedin.com/in/harsha-vardhan-tamtam
 
 Email:
 tamtamharshavardhan@gmail.com
